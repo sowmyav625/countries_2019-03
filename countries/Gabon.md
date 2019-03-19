@@ -9,6 +9,6 @@
 
 
 ## interesting trivia
-
+Gabon is located west coast of africa
 
 
